@@ -1,4 +1,8 @@
 # Clase-de-GitHub
+Tama
+tamariz
+tamarindo
+tamauris
 ssss
 sdcdsv
 sdvdsv
